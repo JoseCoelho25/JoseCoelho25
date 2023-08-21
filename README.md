@@ -14,7 +14,7 @@ As a Full-stack JavaScript Developer, I have been working with various web techn
 
 ### I have completed a Professional Full Stack course at Flag.pt, which has provided me with the knowledge and experience in developing websites and applications. It has been a long path, about a year long, of self improvement, and alot of studying!
 
-At the moment im looking for my first job opportunity, where i can show my knowledge and learn more. I will still continue to evolve and my pursue of knowledge, by making many more courses from Udemy, and also working as a Freelance Web Developer.
+At the moment im looking for a job opportunity, where i can show my knowledge and learn more. I will still continue to evolve and my pursue of knowledge, by making many more courses from Udemy, and also working as a Freelance Web Developer.
 
 Skilled in collaboration and problem-solving, I am a dedicated and hardworking professional who is always eager to take on new challenges and opportunities to grow in my field. If you have any questions or would like to connect, please feel free to contact me.
 
